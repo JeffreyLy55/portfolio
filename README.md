@@ -1,1 +1,1 @@
-https://jeffreyly55.github.io/final-portfolio/
+https://jeffreyly55.github.io/portfolio/
